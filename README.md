@@ -6,4 +6,6 @@ ${\color{#FFE2D9}\textsf{( ˶ˆᗜˆ˵ ) .ᐟ.ᐟ}}$
 
 ![image alt](https://www.bloggif.com/tmp/7cb6431dc756e45af24be5cb6d89c06b/text.gif?1777156839)ㅤ ${\color{#FFEAE5}\textsf{  ⌒ ₊ㅤㅤㅤ𝓘𝑵𝑭𝑱}}$ ${\color{#FFC1B3}\textsf{ㅤ⬫ㅤㅤׄ ㅤ𝐁α𝗌𝗂𝖼 𝐃𝐍𝚰}}$
 
+${\color{#FCAA97}\textsf{17 𝗒.ⱺ}}$ ${\color{#FAE3DE}\textsf{ㅤ␥  ׅ♡}}$ ${\color{#FFE7E0}\textsf{ㅤ𝐄ᥣᥣ𝗂ⱺ𝗍 𝖿𝗂𝖼𝗍𝗂ⱺ𐓣𝗄𝗂𐓣}}$
+
 WIP, BE PATIENT.
