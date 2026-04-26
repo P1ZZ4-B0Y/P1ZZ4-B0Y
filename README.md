@@ -1,5 +1,7 @@
 <div align="center">
 
+![image alt](https://media.discordapp.net/attachments/1443117933428736133/1497769717090484305/053056a76ed47f40a6ba46a13c35019d.gif?ex=69eeba3f&is=69ed68bf&hm=e13b5612dca4a785f7ea66a5d0d05190ac571241cf261c095f1876662f11ba8b&=&width=625&height=121)
+
 ![image alt](https://www.bloggif.com/tmp/7cb6431dc756e45af24be5cb6d89c06b/text.gif?1777160479)
 
 ${\color{#FFE2D9}\textsf{( ˶ˆᗜˆ˵ ) .ᐟ.ᐟ}}$
@@ -8,9 +10,9 @@ ${\color{#FFE2D9}\textsf{( ˶ˆᗜˆ˵ ) .ᐟ.ᐟ}}$
 
 ![image alt](https://www.bloggif.com/tmp/7cb6431dc756e45af24be5cb6d89c06b/text.gif?1777156839) 
 
-${\color{#FFEAE5}\textsf{  ⌒ ₊ㅤㅤㅤ𝓘𝑵𝑭𝑱}}$ ${\color{#FCAA97}\textsf{ㅤ⬫ㅤㅤׄ ㅤ𝐁α𝗌𝗂𝖼 𝐃𝐍𝚰}}$
+![image alt](https://media.discordapp.net/attachments/1443117933428736133/1497770996541952100/tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.gif?ex=69eebb70&is=69ed69f0&hm=49421a90e99239a87725eead33be3f41124ed96616407511dd7fee63f6b522d8&=&width=25&height=25) ${\color{#FFEAE5}\textsf{  ⌒ ₊ㅤ𝓘𝑵𝑭𝑱}}$ ${\color{#FCAA97}\textsf{ㅤ⬫ㅤׄ ㅤ𝐁α𝗌𝗂𝖼 𝐃𝐍𝚰}}$
 
-${\color{#FCAA97}\textsf{17 𝗒.ⱺ}}$ ${\color{#FAE3DE}\textsf{ㅤ␥  ׅ♡}}$ ${\color{#FFE7E0}\textsf{ㅤ𝐄ᥣᥣ𝗂ⱺ𝗍 𝖿𝗂𝖼𝗍𝗂ⱺ𐓣𝗄𝗂𐓣}}$
+${\color{#FCAA97}\textsf{ㅤㅤ17 𝗒.ⱺ}}$ ${\color{#FAE3DE}\textsf{ㅤ␥  ׅ♡}}$ ${\color{#FFE7E0}\textsf{ㅤ𝐄ᥣᥣ𝗂ⱺ𝗍 𝖿𝗂𝖼𝗍𝗂ⱺ𐓣𝗄𝗂𐓣 ｡ Ꮺ ˚}}$ ![image alt](https://media.discordapp.net/attachments/1443117933428736133/1497770996814319626/tumblr_19ff38315b0d10ba3caca37e891ce749_05eb388f_75.gif.webp?ex=69eebb70&is=69ed69f0&hm=1f74832484190989bcff8eea052654152cfce5a39d505d51cf48706c8413666d&=&animated=true&width=50&height=50)
 
 ![image alt](https://github.com/P1ZZ4-B0Y/P1ZZ4-B0Y/blob/991b1101c7b6254d557b19588040d14eb4ab9deb/deco2.webp)
 
@@ -26,4 +28,4 @@ ${\color{#FCAA97}\textsf{ꭑⱺ𝗋𝖾 𝗍ɦ𝗂𐓣𝗀𝗌 αᑲⱺυ𝗍 �
 
 [Pronouns !](https://en.pronouns.page/@P1ZZA-B0Y)
 
-![image alt](https://64.media.tumblr.com/1878633c7535a6525cbc8297a529beeb/22446b416299184a-8a/s1280x1920/2f02c8fa00ae436ebfa22a844e70d455eb50349e.gifv)
+![image alt](https://media.discordapp.net/attachments/1443117933428736133/1497769717090484305/053056a76ed47f40a6ba46a13c35019d.gif?ex=69eeba3f&is=69ed68bf&hm=e13b5612dca4a785f7ea66a5d0d05190ac571241cf261c095f1876662f11ba8b&=&width=625&height=121)
