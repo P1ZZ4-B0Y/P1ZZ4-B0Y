@@ -18,8 +18,7 @@ ${\color{#FF5C51}\textsf{ㅤㅤ17 𝗒.ⱺ}}$ ${\color{#FF5C51}\textsf{ㅤ␥ 
 
 ${\color{#FFD6D3}\textsf{𝐒𝗂𝗀𐓣 ꭑ𝗒}}$
 
-[𝓐𝕥𝗮𝔟ⱺⱺ𝘬 !](https://skeet.atabook.org/)
-
+[𝓐𝕥𝗮𝔟ⱺⱺ𝘬 !](https://elliebuilder.atabook.org/)
 ㅤㅤㅤㅤ
 
 ${\color{#FF5C51}\textsf{ꭑⱺ𝗋𝖾 𝗍ɦ𝗂𐓣𝗀𝗌 αᑲⱺυ𝗍 ꭑ𝖾 ɦ𝖾𝗋𝖾}}$
