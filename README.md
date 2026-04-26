@@ -24,7 +24,7 @@ ${\color{#FFD6D3}\textsf{𝐒𝗂𝗀𐓣 ꭑ𝗒}}$
 
 ${\color{#FF5C51}\textsf{ꭑⱺ𝗋𝖾 𝗍ɦ𝗂𐓣𝗀𝗌 αᑲⱺυ𝗍 ꭑ𝖾 ɦ𝖾𝗋𝖾}}$
 
-[𝓡𝕖𝒏ƚɾყ !](https://rentry.co/p1zza-b0y)
+[𝓡𝕖𝒏ƚɾყ !](https://rentry.co/pizza1shere)
 
 [Pronouns !](https://en.pronouns.page/@P1ZZA-B0Y)
 
