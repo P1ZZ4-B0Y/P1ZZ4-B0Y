@@ -14,16 +14,16 @@ ${\color{#FCAA97}\textsf{17 𝗒.ⱺ}}$ ${\color{#FAE3DE}\textsf{ㅤ␥  ׅ♡
 
 ![image alt](https://github.com/P1ZZ4-B0Y/P1ZZ4-B0Y/blob/991b1101c7b6254d557b19588040d14eb4ab9deb/deco2.webp)
 
-${\color{#FFE7E0}\textsf{Sign my}}$
+${\color{#FFE7E0}\textsf{𝐒𝗂𝗀𐓣 ꭑ𝗒}}$
 
 [𝓐𝕥𝗮𝔟ⱺⱺ𝘬 !](https://skeet.atabook.org/)
 
 ㅤㅤㅤㅤ
 
-${\color{#FCAA97}\textsf{and look this two}}$
+${\color{#FCAA97}\textsf{ꭑⱺ𝗋𝖾 𝗍ɦ𝗂𐓣𝗀𝗌 αᑲⱺυ𝗍 ꭑ𝖾 ɦ𝖾𝗋𝖾}}$
 
 [𝓡𝕖𝒏ƚɾყ !](https://rentry.co/imjsskeet)
 
 [Pronouns !](https://en.pronouns.page/@P1ZZA-B0Y)
 
-WIP, BE PATIENT.
+![image alt](https://64.media.tumblr.com/1878633c7535a6525cbc8297a529beeb/22446b416299184a-8a/s1280x1920/2f02c8fa00ae436ebfa22a844e70d455eb50349e.gifv)
