@@ -4,25 +4,25 @@
 
 ![image alt](https://www.bloggif.com/tmp/7cb6431dc756e45af24be5cb6d89c06b/text.gif?1777160479)
 
-${\color{#FFE2D9}\textsf{( ˶ˆᗜˆ˵ ) .ᐟ.ᐟ}}$
+${\color{#FFD6D3}\textsf{( ˶ˆᗜˆ˵ ) .ᐟ.ᐟ}}$
 
 ![image alt](https://github.com/P1ZZ4-B0Y/P1ZZ4-B0Y/blob/c106ed828c076878b8abd7b1ac559064f47baed4/deco1.webp)
 
 ![image alt](https://www.bloggif.com/tmp/7cb6431dc756e45af24be5cb6d89c06b/text.gif?1777156839) 
 
-![image alt](https://media.discordapp.net/attachments/1443117933428736133/1497770996541952100/tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.gif?ex=69eebb70&is=69ed69f0&hm=49421a90e99239a87725eead33be3f41124ed96616407511dd7fee63f6b522d8&=&width=25&height=25) ${\color{#FFEAE5}\textsf{  ⌒ ₊ㅤ𝓘𝑵𝑭𝑱}}$ ${\color{#FCAA97}\textsf{ㅤ⬫ㅤׄ ㅤ𝐁α𝗌𝗂𝖼 𝐃𝐍𝚰}}$
+![image alt](https://media.discordapp.net/attachments/1443117933428736133/1497770996541952100/tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75.gif?ex=69eebb70&is=69ed69f0&hm=49421a90e99239a87725eead33be3f41124ed96616407511dd7fee63f6b522d8&=&width=25&height=25) ${\color{#FFD6D3}\textsf{  ⌒ ₊ㅤ𝓘𝑵𝑭𝑱}}$ ${\color{#FF5C51}\textsf{ㅤ⬫ㅤׄ ㅤ𝐁α𝗌𝗂𝖼 𝐃𝐍𝚰}}$
 
-${\color{#FCAA97}\textsf{ㅤㅤ17 𝗒.ⱺ}}$ ${\color{#FAE3DE}\textsf{ㅤ␥  ׅ♡}}$ ${\color{#FFE7E0}\textsf{ㅤ𝐄ᥣᥣ𝗂ⱺ𝗍 𝖿𝗂𝖼𝗍𝗂ⱺ𐓣𝗄𝗂𐓣 ｡ Ꮺ ˚}}$ ![image alt](https://media.discordapp.net/attachments/1443117933428736133/1497770996814319626/tumblr_19ff38315b0d10ba3caca37e891ce749_05eb388f_75.gif.webp?ex=69eebb70&is=69ed69f0&hm=1f74832484190989bcff8eea052654152cfce5a39d505d51cf48706c8413666d&=&animated=true&width=50&height=50)
+${\color{#FF5C51}\textsf{ㅤㅤ17 𝗒.ⱺ}}$ ${\color{#FF5C51}\textsf{ㅤ␥  ׅ♡}}$ ${\color{#FFD6D3}\textsf{ㅤ𝐄ᥣᥣ𝗂ⱺ𝗍 𝖿𝗂𝖼𝗍𝗂ⱺ𐓣𝗄𝗂𐓣 ｡ Ꮺ ˚}}$ ![image alt](https://media.discordapp.net/attachments/1443117933428736133/1497770996814319626/tumblr_19ff38315b0d10ba3caca37e891ce749_05eb388f_75.gif.webp?ex=69eebb70&is=69ed69f0&hm=1f74832484190989bcff8eea052654152cfce5a39d505d51cf48706c8413666d&=&animated=true&width=50&height=50)
 
 ![image alt](https://github.com/P1ZZ4-B0Y/P1ZZ4-B0Y/blob/991b1101c7b6254d557b19588040d14eb4ab9deb/deco2.webp)
 
-${\color{#FFE7E0}\textsf{𝐒𝗂𝗀𐓣 ꭑ𝗒}}$
+${\color{#FFD6D3}\textsf{𝐒𝗂𝗀𐓣 ꭑ𝗒}}$
 
 [𝓐𝕥𝗮𝔟ⱺⱺ𝘬 !](https://skeet.atabook.org/)
 
 ㅤㅤㅤㅤ
 
-${\color{#FCAA97}\textsf{ꭑⱺ𝗋𝖾 𝗍ɦ𝗂𐓣𝗀𝗌 αᑲⱺυ𝗍 ꭑ𝖾 ɦ𝖾𝗋𝖾}}$
+${\color{#FF5C51}\textsf{ꭑⱺ𝗋𝖾 𝗍ɦ𝗂𐓣𝗀𝗌 αᑲⱺυ𝗍 ꭑ𝖾 ɦ𝖾𝗋𝖾}}$
 
 [𝓡𝕖𝒏ƚɾყ !](https://rentry.co/imjsskeet)
 
